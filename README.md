@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/c98a54742d0f6e4f4c8d68a302abfcf4/76f0eea448f6a984-85/s75x75_c1/b5ab64b8d6ce759dbc9f1a9e2f6bd2a58a068d96.gifv)![](https://64.media.tumblr.com/1695c260574323daab4f4fc665a86d45/1016a75420cbd368-09/s100x200/7bc9695137300b0ffc801e1ce3f68dbd16b11b7d.pnj)
+![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
 <p align="center">I HATE purelily so white lily skins are on EXTREMELY thin ice when I'm in PV skins. I AM NOT YOUR HUSBAND, WHITE LILY.</p>
 
