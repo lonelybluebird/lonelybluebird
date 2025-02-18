@@ -1,3 +1,5 @@
+![](https://64.media.tumblr.com/c98a54742d0f6e4f4c8d68a302abfcf4/76f0eea448f6a984-85/s75x75_c1/b5ab64b8d6ce759dbc9f1a9e2f6bd2a58a068d96.gifv)
+
 <p align="center">I HATE purelily so white lily skins are on EXTREMELY thin ice when I'm in PV skins. I AM NOT YOUR HUSBAND, WHITE LILY.</p>
 
 <p align="center">Me being friendly with you or accepting an item from you is NOT an invitation for you to act romantic towards me or initiate romantic roleplay of any kind. I am taken and not comfortable with excessive kisses from strangers. I am NOT your lover, weird rando 💀</p>
