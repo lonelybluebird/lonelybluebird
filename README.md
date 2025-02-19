@@ -6,7 +6,7 @@
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird freak 💀</p>
 
-<p align="center">I adore <B>my gf</B> and being romantic with <I>only her</I>. I adore my friends and <I>PLATONIC</I> interactions with them and randos.</p>
+<p align="center">I adore <B>my gf</B> and being romantic with <I>only her</I>. I adore my friends and <I>PLATONIC</I> or JOKE interactions with them and randos.</p>
 
 <p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored for your fuckass ships.</p>
 
