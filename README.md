@@ -2,11 +2,11 @@
 
 <p align="center">Okay. Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
-<p align="center">I HATE WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int, int PLATONICALLY with caution/care when I'm in PV skins. I AM NOT. YOUR. HUSBAND.</p>
+<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int, int PLATONICALLY with caution/care when I'm in PV skins. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
 
-<p align="center">IF I DON'T KNOW YOU, DO NOT COME UP AND KISS ME FOR ANY SHIPS. I am NOT your lover, weird freak 💀</p>
+<p align="center">IF I DON'T KNOW YOU, DO NOT COME UP AND KISS ME FOR ANY SHIPS. I am <B>NOT</B> your lover, weird freak 💀</p>
 
-<p align="center">I adore my gf and being romantic with ONLY HER. I adore my friends and PLATONIC interactions with them and randos.</p>
+<p align="center">I adore <B>my gf</B> and being romantic with ONLY HER. I adore my friends and PLATONIC interactions with them and randos.</p>
 
 <p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins. Please stop for the love of fucking god I am sick of my boundaries being ignored for your fuckass ships.</p>
 
