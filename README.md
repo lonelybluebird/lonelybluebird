@@ -6,11 +6,9 @@
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird little freaks 💀</p>
 
-<p align="center">I adore <B>my gf</B> and being romantic with <I>only her</I>. I adore my friends and <I>PLATONIC</I> or JOKE interactions with them and randos.</p>
+<p align="center">I adore <B>my gf</B> and being romantic with <I>only her</I>. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
 
 <p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored for your fuckass ships.</p>
-
-<p align="center">If people could stop feminizing male characters in front of me that would be really fucking appreciated. I <B><I>HATE</I></B> the sexualization of smaller/thinner male characters. "Just block" I have been and I still see more of them. I need it to <B><I>stop</I></B>.</p>
 
 ![](https://64.media.tumblr.com/a8b5eace754f20a02319323292b4a1c9/ae9f71892911432c-46/s2048x3072/7abe37249ed6c8ba54df549d5402b13f4c8a3e11.pnj)
 
