@@ -4,9 +4,11 @@
 
 <p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int, int PLATONICALLY with caution/care when I'm in PV skins. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
 
-<p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird little freaks 💀</p>
+<p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird little freaks 💀</p>
 
-<p align="center">I adore <B>my gf</B> and being romantic with <I>only her</I>. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+<p align="center">I adore <B>my gf</B>, the one with the purple star and moon themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+
+<p align="center">I will cuddle friends as a duo or ship to protect them from weirdos.</p>
 
 <p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored for your fuckass ships.</p>
 
