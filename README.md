@@ -8,7 +8,7 @@
 
 <p align="center">I adore <B>my gf</B>, the one with the purple star and moon themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
 
-<p align="center">I will cuddle friends as a duo or ship to protect them from weirdos.</p>
+<p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
 <p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored for your fuckass ships.</p>
 
