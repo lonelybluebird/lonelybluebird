@@ -10,7 +10,7 @@
 
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
-<p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored for your fuckass ships.</p>
+<p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins, two of them being white lily. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored for your fuckass ships.</p>
 
 ![](https://64.media.tumblr.com/a8b5eace754f20a02319323292b4a1c9/ae9f71892911432c-46/s2048x3072/7abe37249ed6c8ba54df549d5402b13f4c8a3e11.pnj)
 
