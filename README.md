@@ -2,7 +2,7 @@
 
 <p align="center">Okay. Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
-<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int, int PLATONICALLY with caution/care when I'm in PV skins. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
+<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend you don't, honestly, I really dislike her and am not comfortablle with her when in PV skins), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird little freaks 💀</p>
 
