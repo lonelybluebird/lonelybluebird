@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://static.wikia.nocookie.net/cookierunkingdom/images/c/c1/Pure_vanilla_soul_jam.png/revision/latest?cb=20210530043923">
+  <img src="https://64.media.tumblr.com/8dcc8bb148ea3544f9f0e4e9bf945068/1016a75420cbd368-b9/s400x600/fe45aae6d5aa2fc2f380ac0777532896036c705b.pnj">
 </div>
 
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
