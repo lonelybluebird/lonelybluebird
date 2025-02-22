@@ -1,3 +1,7 @@
+<div align="center">
+  <img src="https://static.wikia.nocookie.net/cookierunkingdom/images/c/c1/Pure_vanilla_soul_jam.png/revision/latest?cb=20210530043923">
+</div>
+
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
 <p align="center">Okay. Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
