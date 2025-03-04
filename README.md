@@ -12,7 +12,9 @@
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends C+H, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY c+h. When I am SMC and sitting alone: PV and other shadow milks int/c+h, bspice and silent salt only allowed to int if you're not going to be weirdly sexual, I HATE when people are weirdly sexual about smc.</p>
+<p align="center">When I am PV and sitting alone: Friends C+H, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY c+h.</p>
+
+<p align="center">When I am SMC and sitting alone: PV and other shadow milks int/c+h, bspice and silent salt only allowed to int if you're not going to be weirdly sexual, I HATE when people are weirdly sexual about smc.</p>
 
 <p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
@@ -24,7 +26,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
-<p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins, two of them being white lily and one being shadow milk. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored by people I don't know and am not comfortable with.</p>
+<p align="center">I've had THREE experiences that made me uncomfortable where low effort CRK skins acted romantic towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored by random strangers for ships.</p>
 
 ![](https://64.media.tumblr.com/dd986b8df8c320ac75158a3b24241b50/1d4dc302c2811eae-8e/s2048x3072/3c23c0e62d0ad9399bb1b8bb8a6360436371b92b.pnj)
 
