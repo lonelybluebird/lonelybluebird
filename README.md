@@ -8,9 +8,11 @@
 
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
-read [the rules](https://rentry.co/intcuddleCRK) would you I wrote them for a reason
+<p align="center">read
+<a href="https://rentry.co/intcuddleCRK">the rules</a>
+would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends C+H ok, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY c+h. When I am SMC and sitting alone: PV and other shadow milks int/c+h, bspice and silent salt only allowed to int if you're not going to be weirdly sexual, I HATE when people are weirdly sexual about smc.</p>
+<p align="center">When I am PV and sitting alone: Friends C+H, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY c+h. When I am SMC and sitting alone: PV and other shadow milks int/c+h, bspice and silent salt only allowed to int if you're not going to be weirdly sexual, I HATE when people are weirdly sexual about smc.</p>
 
 <p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
@@ -26,6 +28,10 @@ read [the rules](https://rentry.co/intcuddleCRK) would you I wrote them for a re
 
 ![](https://64.media.tumblr.com/dd986b8df8c320ac75158a3b24241b50/1d4dc302c2811eae-8e/s2048x3072/3c23c0e62d0ad9399bb1b8bb8a6360436371b92b.pnj)
 
-border credit: [this ](https://www.tumblr.com/sisterlucifergraphics)[person](https://www.tumblr.com/sister-lucifer)
+<p align="center">border credit:
+<a href="https://www.tumblr.com/sisterlucifergraphics">this </a>
+<a href="https://www.tumblr.com/sister-lucifer">person</a>
+</p>
+
 <!--
 **lonelybluebird/lonelybluebird** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.>
