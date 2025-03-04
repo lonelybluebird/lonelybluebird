@@ -8,7 +8,11 @@
 
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
-<p align="center">Okay. Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
+read [the rules](https://rentry.co/intcuddleCRK) would you I wrote them for a reason
+
+<p align="center">When I am PV and sitting alone: Friends C+H ok, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY c+h. When I am SMC and sitting alone: PV and other shadow milks int/c+h, bspice and silent salt only allowed to int if you're not going to be weirdly sexual, I HATE when people are weirdly sexual about smc.</p>
+
+<p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
 <p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend you don't, honestly, I really dislike her and am not comfortable with her when in PV skins), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
 
