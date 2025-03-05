@@ -12,7 +12,7 @@
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends C+H, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY c+h.</p>
+<p align="center">When I am PV and sitting alone: Friends C+H, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY ok to int.</p>
 
 <p align="center">When I am SMC and sitting alone: Friends C+H, PV and other shadow milks int/c+h, bspice and silent salt only allowed to int if you're not going to be weirdly sexual, I HATE when people are weirdly sexual about smc.</p>
 
