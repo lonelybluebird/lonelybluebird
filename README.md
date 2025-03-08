@@ -8,6 +8,10 @@
 
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
+<h3 align="center">And slowly, I become you... until I forget what it felt like to be me.</h3>
+
+<p align="center">--------------------------------------------------------------------------------------------------</p>
+
 <p align="center">read
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
@@ -22,7 +26,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird little freaks 💀</p>
 
-<p align="center">I adore <B>my love</B>, the one with the purple star/moon themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+<p align="center">I adore my dearest Rosalie, the person with the purple star/moon themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
 
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
