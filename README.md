@@ -26,7 +26,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird little freaks 💀</p>
 
-<p align="center">I adore my dearest Rosalie, the person with the purple star/moon themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+<p align="center">I adore my best friend Rosalie, the person with the purple star/moon themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
 
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
