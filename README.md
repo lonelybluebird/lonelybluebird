@@ -10,7 +10,7 @@
 
 <h3 align="center">Sorry if I come off as overly affectionate, I'm lonely</h3>
 
-<p align="center">-------------------------------------------------------------------------------------</p>
+<p align="center">------------------------------------------------------------------------------</p>
 
 <p align="center">read
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
