@@ -8,7 +8,7 @@
 
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
-<h3 align="center">As long as you're here, I won't feel alone.</h3>
+<h3 align="center">Sorry if I come off as overly affectionate, I'm lonely</h3>
 
 <p align="center">-------------------------------------------------------------------------------------</p>
 
@@ -22,11 +22,11 @@ would you, I wrote them for a reason.</p>
 
 <p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
-<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend you don't c+h with me, I am not comfortable with even LOOKING like I'm doing purelily), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
+<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend white lily skins don't c+h with me when I'm in pv skins, I am not comfortable with even LOOKING like I'm doing purelily), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
 
-<p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, weird little freaks 💀</p>
+<p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic roleplays with me.</p>
 
-<p align="center">I adore my best friend Rosalie, the person with the purple star/moon themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+<p align="center">I adore my best friend Rosalie, the person with the purple star/moon/galaxy themed OC named Estella. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
 
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
