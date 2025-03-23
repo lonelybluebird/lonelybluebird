@@ -16,9 +16,11 @@
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends C+H, Dark Cacao C+H, Shadow Milk C+H, White Lily FRIENDS ONLY ok to int.</p>
+<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily FRIENDS ONLY ok to int.</p>
 
-<p align="center">When I am SMC and sitting alone: Friends C+H, PV and other shadow milks int/c+h, silent salt only allowed to int if it's just a gathering of beasts and bspice/mystic flour/eternal sugar are also present.</p>
+<p align="center">When I am Truthless Recluse and sitting alone: Friends int/c+h, Shadow Milk c+h, Black Sapphire c+h, Candy Apple c+h.</p>
+
+<p align="center">When I am SMC and sitting alone: Friends int/c+h, PV and other shadow milks int/c+h, other beasts int/c+h.</p>
 
 <p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
