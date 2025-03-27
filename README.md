@@ -8,7 +8,7 @@
 
 ![](https://64.media.tumblr.com/e86607f100caa7c245bcd889f061b06f/db26be39848f24fa-de/s2048x3072/66c10030bbf5ee6a52e5044b709b3603d008289e.pnj)
 
-<h3 align="center">Spending time with you instantly lifts my mood</h3>
+<h3 align="center">"The winner takes it all" and the winner isn't me. Not anymore.</h3>
 
 <p align="center">------------------------------------------------------------------------------</p>
 
