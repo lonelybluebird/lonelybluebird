@@ -10,7 +10,7 @@
 
 <h3 align="center">"The winner takes it all, the loser has to fall."</h3>
 
-<p align="center">------------------------------------------------------------------------------</p>
+<p align="center">-----------------------------------------------------------------------</p>
 
 <p align="center">read
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
@@ -33,6 +33,8 @@ would you, I wrote them for a reason.</p>
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
 <p align="center">I've had FIVE experiences that made me uncomfortable where low effort CRK skins acted romantic/sexual towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored by random strangers for ships.</p>
+
+<p align="center">Um how about hell no you're blocked and muted for a reason fuck off /dir</p>
 
 ![](https://64.media.tumblr.com/dd986b8df8c320ac75158a3b24241b50/1d4dc302c2811eae-8e/s2048x3072/3c23c0e62d0ad9399bb1b8bb8a6360436371b92b.pnj)
 
