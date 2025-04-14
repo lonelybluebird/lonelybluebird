@@ -16,7 +16,7 @@
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily FRIENDS ONLY ok to int.</p>
+<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily ok to int, it's a case by case basis whether I feel comfortable around a WL while in pv skins; if you try to ship yourself with me gtfo.</p>
 
 <p align="center">When I am Truthless Recluse and sitting alone: Friends int/c+h, Shadow Milk c+h, Black Sapphire c+h, Candy Apple c+h.</p>
 
