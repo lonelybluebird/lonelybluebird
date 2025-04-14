@@ -24,7 +24,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
-<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend white lily skins don't c+h with me when I'm in pv skins, I am not comfortable with even LOOKING like I'm doing purelily), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
+<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend white lily skins don't c+h with me when I'm in pv skins, I am not comfortable with purelily if it involves me or my skins), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic roleplays with me.</p>
 
@@ -34,7 +34,9 @@ would you, I wrote them for a reason.</p>
 
 <p align="center">I've had FIVE experiences that made me uncomfortable where low effort CRK skins acted romantic/sexual towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored by random strangers for ships.</p>
 
-![](https://64.media.tumblr.com/dd986b8df8c320ac75158a3b24241b50/1d4dc302c2811eae-8e/s2048x3072/3c23c0e62d0ad9399bb1b8bb8a6360436371b92b.pnj)
+<div align="center">
+  <img src="https://64.media.tumblr.com/dd986b8df8c320ac75158a3b24241b50/1d4dc302c2811eae-8e/s2048x3072/3c23c0e62d0ad9399bb1b8bb8a6360436371b92b.pnj">
+</div>
 
 <p align="center">border credit:
 <a href="https://www.tumblr.com/sisterlucifergraphics">this </a>
