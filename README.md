@@ -16,7 +16,7 @@
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily ok to int, it's a case by case basis whether I feel comfortable around a WL while in pv skins; if you try to ship yourself with me gtfo.</p>
+<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily ok to int, it's a case by case basis whether I feel comfortable around a WL while in pv skins; if you try to ship yourself with me gtfo. He's taken by Estella.</p>
 
 <p align="center">When I am Truthless Recluse and sitting alone: Friends int/c+h, Shadow Milk c+h, Black Sapphire c+h, Candy Apple c+h.</p>
 
@@ -28,7 +28,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic roleplays with me.</p>
 
-<p align="center">I sometimes prioritize my best friend Rosalie, the person with the purple star/moon/galaxy themed OC named Estella, when she's online. Yes she's my ex gf but still she matters a lot to me, and I am still a HUGE simp for her OC. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+<p align="center">I sometimes prioritize my best friend Rosalie, the person with the purple star/moon/galaxy themed OC named Estella, when she's online. She matters a lot to me, and I am still a HUGE simp for her OC. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
 
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
