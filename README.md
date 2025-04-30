@@ -28,7 +28,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic/sexual roleplays with me.</p>
 
-<p align="center">People who sexualize pure vanilla can kiss my ass I'm so sick of what the fandom has done to him. (Mpreg is not real by the way, don't tell me to give birth your oc?!?! FUCK OFF! /dir) Do not sexualize me or my skins.
+<p align="center">People who sexualize pure vanilla can kiss my ass I'm so sick of what the fandom has done to him. (Mpreg is not real by the way, don't tell me to give birth your oc?!?! FUCK OFF! /DIR) Do not sexualize me or my skins.
 
 <p align="center">I sometimes prioritize my best friend Rosalie, the person with the purple star/moon/galaxy themed OC named Estella, when she's online. She matters a lot to me, and I am still a HUGE simp for her OC. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
 
