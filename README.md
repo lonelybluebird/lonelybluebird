@@ -30,11 +30,11 @@ would you, I wrote them for a reason.</p>
 
 <p align="center">People who sexualize pure vanilla and shadow milk can kiss my ass I'm so sick of what the fandom has done to them. (Mpreg is not real by the way, don't tell me to give birth your oc?!?! FUCK OFF! /dir) Do not sexualize me or my skins.
 
-<p align="center">I sometimes prioritize my best friend Rosalie, the person with the purple star/moon/galaxy themed OC named Estella, when she's online. She matters a lot to me, and I am still a HUGE simp for her OC. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+<p align="center">I sometimes prioritize my best friend Rosalie/Estella, when she's online. She matters a lot to me as she's been my closest friend for like three years.</p>
 
 <p align="center">By the way, anyone who hurts Rosie is my fucking enemy, I hope you know that. I know who you are and her wanting to move on without conflict is the only reason I'm not hunting your ass. You know who you are. /dir</p>
 
-<p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
+<p align="center">I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them. I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
 <p align="center">I've had FIVE experiences that made me uncomfortable where low effort CRK skins acted romantic/sexual towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored by random strangers for ships.</p>
 
