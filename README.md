@@ -28,15 +28,15 @@ would you, I wrote them for a reason.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic/sexual roleplays with me.</p>
 
-<p align="center">People who sexualize pure vanilla and shadow milk can kiss my ass I'm so sick of what the fandom has done to them. (Mpreg is not real by the way, don't tell me to give birth your oc?!?! FUCK OFF! /DIR) Do not sexualize me or my skins.
+<p align="center">People who sexualize pure vanilla and shadow milk can kiss my ass I'm so sick of what the fandom has done to them. (Mpreg is not real by the way, don't tell me to give birth your oc?!?! FUCK OFF! /dir) Do not sexualize me or my skins.
 
 <p align="center">I sometimes prioritize my best friend Rosalie, the person with the purple star/moon/galaxy themed OC named Estella, when she's online. She matters a lot to me, and I am still a HUGE simp for her OC. I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them.</p>
+
+<p align="center">By the way, anyone who hurts Rosie is my fucking enemy, I hope you know that. I know who you are and her wanting to move on without conflict is the only reason I'm not hunting your ass. You know who you are. /dir</p>
 
 <p align="center">I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
 <p align="center">I've had FIVE experiences that made me uncomfortable where low effort CRK skins acted romantic/sexual towards my PV skins. <B><I>Please stop for the love of fucking god</I></B> I am sick of my boundaries being ignored by random strangers for ships.</p>
-
-<p align="center">Shun DNI. You tried to emotionally manipulate Rosie after breaking up with her; you're a piece of shit and I knew it before she did.</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/dd986b8df8c320ac75158a3b24241b50/1d4dc302c2811eae-8e/s2048x3072/3c23c0e62d0ad9399bb1b8bb8a6360436371b92b.pnj">
