@@ -16,7 +16,7 @@
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily ok to int, it's a case by case basis whether I feel comfortable around a WL while in pv skins; if you try to ship yourself with me gtfo.</p>
+<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily ok to c+h ONLY if we're friends, I'm only comfortable with the few WLs I already know.</p>
 
 <p align="center">When I am Truthless Recluse and sitting alone: Friends int/c+h, Shadow Milk c+h, Black Sapphire c+h, Candy Apple c+h.</p>
 
@@ -24,7 +24,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
-<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend white lily skins don't c+h with me when I'm in pv skins, I am not comfortable with purelily if it involves me or my skins), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
+<p align="center">I <B><I>HATE</I></B> WHEN PPL TRY TO DO PURELILY WITH ME. white lily skins, if you're going to int (I recommend random white lily skins don't c+h with me when I'm in pv skins, I am not comfortable with purelily if it involves me or my skins), int PLATONICALLY with caution/care. I AM <B><I>NOT YOUR HUSBAND</I></B>.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic/sexual roleplays with me.</p>
 
