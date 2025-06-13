@@ -28,11 +28,11 @@ would you, I wrote them for a reason.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic/sexual roleplays with me.</p>
 
-<p align="center">People who sexualize pure vanilla and shadow milk (or give them female parts just to sexualize them) can KISS MY ASS I'm so sick of what the fandom has done to them. (Mpreg is not real by the way, don't tell me to give birth to your oc?!?! FUCK OFF, SHUN!!! /dir) Do not sexualize me or my skins and DO NOT sexualize yourself to me.
+<p align="center">People who sexualize pure vanilla and shadow milk (or give them female parts just to sexualize them) can KISS MY ASS I'm so sick of what the fandom has done to them. (Mpreg is not real by the way, don't tell me to give birth to your oc?!?! FUCK OFF!!! /dir) Do not sexualize me or my skins and DO NOT sexualize yourself to me.
 
 <p align="center">I sometimes prioritize my best friend Rosalie/Estella, when she's online. She matters a lot to me as she's been my closest friend for like three years, and we dated for two of them. She's now my ex-gf but I still love her beyond words and will try my hardest to protect her from harm.</p>
 
-<p align="center">By the way, anyone who hurts Rosie is my fucking enemy, I hope you know that. Hiding me and cozying up to her when she was trying to defend someone from you and your cheater friend's slander? I know what you did, Shun. She tells me everything.</p>
+<p align="center">By the way, anyone who hurts Rosie is my fucking enemy, I hope you know that. Hiding me and cozying up to her when she was trying to defend someone from you and your cheater friend's slander? I know what you did. She tells me everything.</p>
 
 <p align="center">I adore my friends and <I>PLATONIC</I>, PROTECTIVE, or JOKE interactions from them (extremely sexualizing jokes are a no, even from friends). I will cuddle with friends as a duo or ship to protect them or myself from weird shippers who ignore boundaries.</p>
 
