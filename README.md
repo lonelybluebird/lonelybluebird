@@ -16,11 +16,13 @@
 <a href="https://rentry.co/intcuddleCRK">the rules</a>
 would you, I wrote them for a reason.</p>
 
-<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao c+h, White Lily ok to c+h ONLY if we're friends, I'm only comfortable with the few WLs I already know.</p>
+<p align="center">When I am PV and sitting alone: Friends int/c+h, Dark Cacao int/c+h, Shadow Milk int/c+h, Black Sapphire int/c+h, White Lily ok to c+h ONLY if we're friends, I'm only comfortable with the few WLs I already know.</p>
 
 <p align="center">When I am Truthless Recluse and sitting alone: Friends int/c+h, Shadow Milk c+h, Black Sapphire c+h, Candy Apple c+h.</p>
 
 <p align="center">When I am SMC and sitting alone: Friends int/c+h, PV and other shadow milks int/c+h, other beasts int/c+h.</p>
+
+<p align="center">When I am Black Sapphire and sitting alone, PV int/c+h (any version), Silverbell DNI you have no reason to be talking to me. Shadow Milk skins may int normally/platonically, Candy Apple may int normally/platonically.
 
 <p align="center">Since people are having trouble reading my fucking boundaries regarding my PV skins I am going to make this crystal clear:</p>
 
@@ -28,7 +30,7 @@ would you, I wrote them for a reason.</p>
 
 <p align="center"><I>IF I DON'T KNOW YOU, DO NOT COME UP AND KISS OR ROMANCE ME FOR ANY SHIPS</I>. I am <B>NOT</B> your lover, and I HATE when strangers try to do romantic/sexual roleplays with me.</p>
 
-<p align="center">People who sexualize pure vanilla and shadow milk (or give them female parts just to sexualize them) can KISS MY ASS I'm so sick of what the fandom has done to them. (Mpreg is not real by the way, don't tell me to give birth to your oc?!?! FUCK OFF!!! /dir) Do not sexualize me or my skins and DO NOT sexualize yourself to me.
+<p align="center">People who sexualize pure vanilla and shadow milk (or give them female parts just to sexualize them) can KISS MY ASS I'm so sick of what the fandom has done to them. (Mpreg is not real by the way, don't tell me to give birth to your oc?!?! FUCK OFF!!! /dir) Do not sexualize me or my skins and DO NOT sexualize yourself to me?! /dir
 
 <p align="center">I sometimes prioritize my best friend Rosalie/Estella, when she's online. She matters a lot to me as she's been my closest friend for like three years, and we dated for two of them. She's now my ex-gf but I still love her beyond words and will try my hardest to protect her from harm.</p>
 
